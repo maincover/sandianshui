@@ -4,6 +4,5 @@ date: 2018-10-31 12:32:00 Z
 ---
 
 李咏妻子哈文发文：在美国，经过17个月的抗癌治疗，2018年10月25日凌晨5点20分，永失我爱。
-
-/uploads/liyong.jpg.desktop
+![Philadelphia's Magic Gardens. This place was so cool!](/uploads/liyong.jpg.desktop "Philadelphia's Magic Gardens")
 
