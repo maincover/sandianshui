@@ -3,8 +3,9 @@ title: 主持人李咏患癌去世 | 关于死亡，这些绘本告诉你
 date: 2018-10-31 12:32:00 Z
 ---
 
-李咏妻子哈文发文：在美国，经过17个月的抗癌治疗，2018年10月25日凌晨5点20分，永失我爱。
-![Philadelphia's Magic Gardens. This place was so cool!](/uploads/CFP450910918-600x400.jpg "Philadelphia's Magic Gardens")
+#李咏妻子哈文发文：在美国，经过17个月的抗癌治疗，2018年10月25日凌晨5点20分，永失我爱。
+
+![Li yong's death news!](/uploads/CFP450910918-600x400.jpg "Liyong")
 
 李咏在与病魔抗争了17个月后离世，他的人生在50岁戛然而止，我们至此也告别了一个时代。
 
