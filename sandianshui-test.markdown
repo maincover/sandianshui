@@ -6,3 +6,13 @@ date: 2018-10-31 12:32:00 Z
 李咏妻子哈文发文：在美国，经过17个月的抗癌治疗，2018年10月25日凌晨5点20分，永失我爱。
 ![Philadelphia's Magic Gardens. This place was so cool!](/uploads/liyong.jpg.desktop "Philadelphia's Magic Gardens")
 
+李咏在与病魔抗争了17个月后离世，他的人生在50岁戛然而止，我们至此也告别了一个时代。
+
+
+这个曾风趣主持《幸运52》、《非常6+1》、《咏乐汇》的著名主持人，就这样猝不及防的离开了我们。
+
+ 
+
+震惊的同时，不经再次深切感受到，死亡，如影随形。
+
+
